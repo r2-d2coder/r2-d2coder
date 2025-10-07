@@ -38,7 +38,6 @@ He liderado y participado en proyectos estratégicos a nivel nacional:
 
 - *LinkedIn:* [linkedin.com/in/larturoflores/](https://linkedin.com/in/larturoflores/)
 - *Correo Electrónico:* arturofloresc@gmail.com
-- *Teléfono:* 5533352809
 
 <!--
 *larturoflores01-afk/larturoflores01-afk* is a ✨ special ✨ repository because its README.md (this file) appears on your GitHub profile.
